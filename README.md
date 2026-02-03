@@ -1,0 +1,2 @@
+# 605fa972-9023-4519-83da-1025d4eb1138-hero-3
+Hero section variant 3 for 605fa972-9023-4519-83da-1025d4eb1138
